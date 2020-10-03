@@ -1,0 +1,121 @@
+{
+  "main": {
+    "id": "9c7ff4dbdb4ff323",
+    "type": "split",
+    "children": [
+      {
+        "id": "d09bc9d93a0bffc6",
+        "type": "leaf",
+        "dimension": 89.07103825136612,
+        "state": {
+          "type": "markdown",
+          "state": {
+            "file": "Nano Draft.md",
+            "mode": "source"
+          }
+        }
+      },
+      {
+        "id": "2986b74a6d397902",
+        "type": "leaf",
+        "dimension": 10.92896174863388,
+        "active": true,
+        "state": {
+          "type": "markdown",
+          "state": {
+            "file": "Random notes to think about..md",
+            "mode": "source"
+          }
+        }
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "43a90f8451a5353f",
+    "type": "split",
+    "children": [
+      {
+        "id": "8aa6b6d8833df9a8",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "4e2be1f4fb3457a7",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {}
+            }
+          },
+          {
+            "id": "17cce664dfa54bda",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": ""
+              }
+            }
+          },
+          {
+            "id": "e8df6ec480f688b8",
+            "type": "leaf",
+            "state": {
+              "type": "starred",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300
+  },
+  "right": {
+    "id": "7586134026526c2f",
+    "type": "split",
+    "children": [
+      {
+        "id": "e1c9d447c9299a72",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "1f03f19026c5da8d",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "file": "Random notes to think about..md"
+              }
+            }
+          },
+          {
+            "id": "ca595e27cae0c399",
+            "type": "leaf",
+            "state": {
+              "type": "tag",
+              "state": {}
+            }
+          },
+          {
+            "id": "6b42d7952172b41a",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "Random notes to think about..md"
+              }
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300
+  },
+  "lastOpenFiles": [
+    "Random notes to think about..md",
+    "Nano Draft.md",
+    "Untitled.md"
+  ]
+}
