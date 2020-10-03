@@ -173,7 +173,7 @@ Feathers swallowed his self-consciousness and a fair dose of self-loathing as he
 
 "Ha! You can't be serious?" she asked. 
 
-The monotrain came into view and the commuters all stood. Feathers stood to, spinning to show that he was dressed quite well enough to impress. His two-piece showed that he'd been a member of the administrative section for at least long enough to have a a second-cadre security clearance - rare enough only half way up the hive, The white-with-blue accents of the armoured sections showed that he was expected to see combat, but not outside of diplomatic engagements. 
+The monotrain came into view and the commuters all stood. Feathers stood to, spinning as his outfit changed mechanically and chromatically. His two-piece showed that he'd been a member of the administrative section for at least long enough to have a a second-cadre security clearance - rare enough only half way up the hive, The white-with-blue accents of the armoured sections showed that he was expected to see combat, but not outside of diplomatic engagements. 
 
 He wasn't so good-looking as to be a real catch, but he presented as though he'd been around long enough - or accomlished enough, to be trusted with protecting and administering some low- to mid- level diplomat on behalf of the hive.
 
@@ -207,10 +207,105 @@ The dark-haired woman with the deep oak skin common to the Hive tapped the entry
 
 The door slid open to reveal a split-level space with a garden up one wall and stairs up the other. Tapestries with the unmistakable plain circle symbol of the Medici family hung above the stairs, giving the metal walls a more noble and, to him, baroque, feel, than anywhere he'd been in a long time. 
 
-The top level had a large dining table, an oblong window to the desert outside, and a woman who could have been a more stately clone of Morgan. She leaned on a railing and greeted them.
+The top level had a large dining table, an oblong window to the desert outside, and a woman who could have been a more stately but fair-skin clone of Morgan. She leaned on a railing and greeted them.
 
 "Morgan! My dear, and a guest! It is a pleasure to meet you, sir. To whom do I have the pleasure?"
 
 Feathers let his arm slip from Morgan's and bowed. "Lieutenant Feathers Brightly, Ma'am. I'm afraid that in our excitement, Flowers has only referred to you as Mum, or Dear Mother."
 
 "Flowers!" the woman chuckled, her smile full of mirth. "Such a fitting pet name, and a Second Adjunct. You can call me Don, young man."
+
+Feathers made  show of looking around as Don led them to the dinner table. "Flowers was telling me that her research included the Medici family, but I would have imagined that the Systems Governers would look unfondly on such outright shows of interest on those who left after the split."
+
+Don looked around and smiled. "They would, and we'd both be thrown into jail or something."
+
+Don began to look more relaxed as he began to feel certainly less so. Even Morgan looked tense.
+
+"Is this a test?" he asked. "Am I supposed to be turning you in as dissidents or something along those lines?"
+
+Hovering drones brought out their dishes and they began to eat. 
+
+"I'd hope not, especially not to your girlfriend," Morgan said.
+
+Feathers shifted in his seat and blushed. He had three partners at home but the idea of Morgan being his new girlfriend, even a fake one, still excited him somewhat. 
+
+They spoke about the new Hive Administrator and their policy of renewing funding to keeping the Nile River from being impacted by the Hive's enormous nearby microclimate. 
+
+They spoke about the latest, and rumour had it, last mission outside of the Earth-controled systems.
+
+"I heard from one of the magistrates that they've named it the 'Bedtime Stories for Adults'," Morgan said. "Such a quirky name."
+
+"Not if you're from any of the Seven Hives," Don said. "You should know that."
+
+"It still sounds too sympathetic to the seperatists," she said.
+
+"It's a translation from an indigenous Canadian language into English," Feathers said. He leaned forward and smiled. It's a little rough pronouncing it unless you translate it."
+
+A sound chirped from Don's hairpiece. "Morgan, sweety," she said. "You have a call on the terminal downstairs. I'd be much obliged if you could get me out of a spot of trouble, please."
+
+Feathers was sure he didn't react. 
+
+Once Morgan was gone, he turned to continue the conversation, only to see Don leaning forward and staring at him. 
+
+"You put on a very convincing accent, Major Rafter," she said.
+
+Feathers gripped for the nearest implement and braced to launch himself back over the railing. "I have no idea why you're implying I am someone I'm not, but if this is a way of saying you'd rather I'd not date your daughter - "
+
+"Oh come on, Richard," Don said. "Put the fork down and relax, it's not as if you haven't been in the pants of one of my decendants before."
+
+Feathers dropped the fork but kept his legs ready. "Ambassador? Madonna Medici?" 
+
+Don shook her head as if she were loosening her hair from a band. When she stopped, it was the same, but the illusionary effect had gone - he could now see that she was indeed the Fleet Marshall's mother. 
+
+He wanted to bow, to curtsey, to salute - but knew enough that the Medici's shunned all form of social heirarchy. He put his hand out to shake hers and felt himself weeping. Feathers had taken his name ironically, he was thin but intensely strong, but Don pulled him into a hug as if he were a child completely overpowered. 
+
+"You did all you could at the River, Major," she said. "It was you and your people or them and theirs."
+
+"I can't even remember anymore," he said. His crying was quiet, he glanced down to where Morgan may have been coming up the stairs at any moment. "It's been so long, I can't remember their - "
+
+He saw that Madonna's arms had started swhirling with blue starlight. He felt her palm gently rest on his forehead - then push him back into the air, holding him as if on a cushion of air.
+
+"Remember."
+
+*He ran until his lungs filled with the ice-cold sand of the river basin. Amid the dust he saw a rocky outcropping large enough to cover the four of them. Tracer fire pinged off his helmet.*
+
+*"In here!" he yelled. "Down, down, down."*
+
+*The three scouts and the journalist slid in behind the outcropping as the tracer fire intensified over the top of them. The white sand swhirled and then stopped as the shock of a nearby explosive round took the wind out of their lungs. The mutuations they'd earned as Australians or by being born to Australians began repairing the torn tissues of their lungs*
+
+*"Major Rafter!" someone said. He turned. Lieutenant Cora Lunt. Protect her. In love. Medici family. His thoughts cleared and he snapped back to reality*
+
+*"I think we found their forward line, Lieutenant!" he shouted. "Fire a flare!"*
+
+*"Fuck yeah!" She replied. He could still see the young woman's bright blue eyes and freckles through the patina of sand and dust that lay over everything now. Their powered weapons still strapped to their backs - dead from some new weapon broadcast from space. 
+Captain Codi Liu had the thomper out and was dropping mortars in spot the quick maths on his notebook told him he'd find a target. He looked around for the journalist. He found her in the prone position next to the outcropping.*
+
+*Her rifle was out, sights in the perfect position as she made singlular, suppressing shots in the direction of the tracing fire coming at them. Some called it Morgan's Legacy, but most knew it was the Marshall's wife Claire McKinley's influence. Nobody in Australia had to work, but they did, and to any job, one had to add 'and a reservist'. The McKinley Axiom: Peaceful But Not Undefended.*
+
+*He slapped the back of the journalist's leg and waited for her to retreat back behind the outcrop*
+
+*"What?" She asked*
+
+*"Hannah! I need you to be documenting this. We're holding this point until help arrives. Get your camera out."*
+
+*Even behind the journalist's goggles, he could see her surprise. The armiture holding her camera flicked out and began clicking and flashing. Feathers turned around to see three figures emerge from the dust. All three wore the combat fittings of the Special Circumstances unit. The shortest of the three led them, her flowing camouflage cape giving away her identity immediately - Silk. Beside her, Baroness and Kepler.*
+
+*"So should we come in with our rifles our some mops?" Cora yelled. 
+
+*"Thank you for pointing us in the right direction, Major," Silk said, kneeling down to where he crouched. She was so short that she almost handn't had to. "I was getting bored."*
+
+*Kepler merely patted him in the shoulder as the freakishly tall man moved silently past him. Baroness, however, approached, put one hand up to his forehead and said "Remember?"*
+
+He fell to the ground, once again surrounded by the ornate apartment and the dinner they'd been served. Feathers looked at her in shock. "Cora, Codi, Hannah - they didn't kill all those people, it was you three - It was you?"
+
+Don sat back down and took a spoonful of ice-cream. "Things were a touch more specific back then. We knew what we were doing so we did them. And yes, all three of your team-mates made it off-world in the exodus. Two of them aren't even human anymore. One of them is quite happily soaring through the stars as a ship the size of this continent." 
+
+She took another bite of ther ice-cream. "Well, not the size, but certainly she has a larger population."
+
+"Wait, who?"
+
+"Cora, Cora's become something more than she used to be."
+
+"Situation sorted, mother." Morgan said from the stairs below. "You're not giving my new man a list of reasons to leave early are you?"
+
+"No," Feathers said, " "
