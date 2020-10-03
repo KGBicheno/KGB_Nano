@@ -308,4 +308,52 @@ She took another bite of ther ice-cream. "Well, not the size, but certainly she 
 
 "Situation sorted, mother." Morgan said from the stairs below. "You're not giving my new man a list of reasons to leave early are you?"
 
-"No," Feathers said, " "
+"No," Feathers said, "I was just thinking of how much I've been looking forward to getting to know you better."
+
+Morgan reached the pair and slid an arm around his waist. "That's perfectly fine by me, sweety. We can start by finding out your favourite drink. You do drink, yes?"
+
+"This hardly counts as duty," Don said. 
+
+Feathers had been about to speak, but raised his hand as if to indicate he had deligated his response to Morgan's mother.
+
+"That is true, isn't it? Feathers," she asked. "This isn't a duty of some kind, is it. Nobody met you in a rained-out car and told you to be on a specific platform at a specific time to help someone in need of a date because someone's daughter has a bad habit of being too choosy about her men?"
+
+Feathers didn't react, his cover already blown. Morgan, on the other hand, lost hold of the glass she'd been drinking from. She flinched as it exploded on the ground. 
+
+"Don't worry, Morgan," Don said, seeing her daaughter about to fly into a fury. "I was the one who had the meeting arranged. The man who gave Feathers the prompt has been helping our family since before the Frenzy."
+
+Morgan's eyes widened and her hands couldn't decide if they wanted to be on her hips or in her hair. 
+
+Feathers walked to the end of the table and picked up another two drinks, one for him and one to replace the one Morgan had dropped.
+
+"See, Baroness," he said. "I think you forgot to tell your daughter that she has a brother, also named Morgan."
+
+There was a terrible amount of screaming, all of it coming from Morgan, as Don and Feathers tried to explain what was going on. Feathers had less of an idea than he would have liked, but realised that he was far less the victim than the young woman both of them had been lying to all night.
+
+He thanked Amna for the quickly-healing skin several times as martini glasses made perfectly-aimed contact with his face. 
+
+Somehow, after hours of existential hollering and recrimination matched with some of the most long-term excuses and apologies Feathers had ever heard, and could never have imagined coming up with. The three of them sat on a circular couch as hovering drones cleaned the mess of glass around them. 
+
+"I have an idea," Morgan said.
+
+Feathers straightened, waiting for another impact. "I'm all ears. What remains of them, anyway."
+
+"All three of us seem fairly willing to lie about who we are, surely others would too," she said. "What if we were to find a group of people who, made it easier for people to keep their lies alive. You pretended to be a Second Adjunct for me so that I could keep my lie about having a partner alive, I'm sure your partner Turtles would be up for something like this, possibly even Mags. Imagine the kind of control we could amass doing something like that if we did it deliberately."
+
+Don stood and stretched. "I think it's a great idea, you two should absolutely do that. I'll even pay for it with what ever resources you need." She finished her stretch and moved towards her bedding chambers. "But unless you missed the last hour of our conversation, I've been playing that game for the last three-hundred years. I've already won it several times, always with the stakes set to all-in. I'll just watch this round."
+
+"You're too obvious anyway, _mother,_" Morgan said. "Sleep well, _mother_."
+
+"I'm in," Feathers said. 
+
+Morgan looked at him cautiously. "There was never a point in this process where I trusted you. As far as I know, you're a soldier who met my mother during a famous battle one day. You're a war hero and a liar and my mother's lapdog. I'm trying to work out if we can do this without us trusting each other."
+
+Feathers plucked a shard of glass from his arm and winced. "There was another way I'm involved with your family," he said.
+
+Morgan settled in as if to listen.
+
+When I was in high school, I was quite a geek, loved the idea of medievil knights in shining armour. One day there was a sign up for try-outs for a school fencing team. I took my best mate along with me so I wouldn't be alone. Damn he was keen. We almost missed the guy teaching it, though. Luckily, he ran up and caught us before we left. That was the day me and your brother Morgan Medici met his future right-hand man, Jon Corliss. 
+
+5024 words. 
+
+Fin.

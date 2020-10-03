@@ -16,5 +16,15 @@ Sometimes you do need to go back and fix a plot hole that will claw at you until
 
 ENTIRE FAMILY SELF INSERT! 
 
+Need a plot twist, why not use one from real life?
+
+Need a cool name for a cool person?
+
+Why not use someone who jumps off mountains for red bull?
+
+I could go on but this is kinda terrible. I know how the rest of it goes though so if you want to know what happens next or what the plot is, open an issue and I'll answer it. 
+
+- KB
+
 
 
