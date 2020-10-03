@@ -14,7 +14,7 @@ He was inside the car before he could fully take stock.
 
 His contact was out of the car as quickly as he'd jumped in. He jammed his thumb on the starter button, mis-aiming and torturing his thumbnail again. The vehicle vibrated at a different frequency to the rain and he pulled away from the crowd with one sweep of the steering. 
 
-"Wholesale?" he thought. Five years ago he'd have lit up a cigarette.
+"Wholesale?" he thought. Years ago he'd have lit up a cigarette.
 
 
 # Family is what you make, not where you're born
@@ -115,4 +115,102 @@ Maggie was the only one not starting at Feathers in shock as he looked up.
 
 "You all knew I was the oldest one here," he said, in an accent none of them had heard before. None of them except Maggie.
 
+"How old are you, Squish?" Wombo asked.
 
+Feathers smiled. "Not so old that we shouldn't be - "
+
+"He saw the Fleet Marshall rise to power," Maggie said between mouthfuls of mushroom. "I imagine you were a child when he was born, yes?"
+
+"Fuck's sake, Mags," Feathers said.
+
+"You're not just a little older than me," Turtles said, snapping her fingers until sparks flew from the inplants she used for her work. "You're nearly a century older than me. Two older than Wombo."
+
+Feathers grabbed what was left of his steak and began eating it as he gather his gear to go out. "Aint one of you kints younger than a century old except for Mags, and they seem fine with this."
+
+"We might be related, you know." Maggie said. They held out their arm and let a rush of pale blue light ripple along their skin. 
+
+Feathers swallowed. "Nah mate, I know your family, no relation."
+
+He was half way down the corridor to the exit when Maggie called out, "You got a clue, didn't you?"
+
+Feathers opened the door and leaned to turn back. 
+
+"Yeah, yeah I did," he called back. "'We can make them believe it for you wholesale', that's all he could give me."
+
+The door closed behind him as Maggie began swearing.
+
+# The long chain to the right link
+
+He ditched his vehicle on one of the outer roadway's many parking spots. The public transit system hub nearby was barely a minute's walk away. Before he left his park, he looked up along the megastructure of the hive. He'd never had verticgo before they started building these things. 
+
+For some reason, looking down their kilometre's tall external walls was easier than looking up. He dulled the sensation of his inner ear. Sounds became muted, but then so did the sense that he was about to fall to his death. Roadways, monorails and freightrails clung to the side of the giant structure. Its outside had been made red by the century it had spent assaulted by the desert, the layer of rust somehow protecting the deeper layers of armour protecting it from the elements. 
+
+He used to know how it worked. He could probably recall the knowledge from an implant but couldn't remember if he'd stored it in one. A transit car roared past behind him going in the opposite direction to where he intended to go. He'd make it to the platform just in time. 
+
+"If you see anything suspicious, like an unattended bag or citizen showing signs of discomfort or illness, do your part and report it to the - " Feathers turned off his ability to hear public service announcements below a certain criticality level. He found his platform and looked around. An empty seat had opened up next to a person with the most nervous expression he'd seen since he'd asked Wombo out. He sat down next to them and tried to look like the monotrain was late and bugging him as well.
+
+"They can never get these things to run on time," Feathers said.
+
+The other had been looking right at him when he'd said it, even though he'd been looking straight ahead. 
+
+"I think it's on time so far," the nervous commuter said. 
+
+Feathers turned as if he hadn't expected the response. He was back to speaking in his collequial accent now.  "Oh," he tapped the timepiece emitter on the orbit of his right-eye. 
+
+"I've always got this thing set wrong," he said. "You okay? If someone's giving you a hard time ... "
+
+"Oh no, I just broke a - " the commuter's nerves took over several of their movements as they blurted out a response. Feather's imagined they hadn't meant to say so much. He finished it for them.
+
+"Promise?" he asked. "You weren't supposed to be showing up alone tonight were you?"
+
+"Ha!" the commuter said, blurting it out. They relaxed and then gave a lopsided grin. "I told my mother that her little girl had finally found someone to take home to her. She's a bit old fashioned and was sick of our family meetings being a one-on-one affair." 
+
+Feathers swallowed his self-consciousness and a fair dose of self-loathing as he said what he'd come to say. "But your boss skipped out on you, yeah? Said it wasn't appropriate as soon as he realised it was a romantic deal?"
+
+"You're too clever for your own good, mister," she said.
+
+"I'm too clever, or rather, too devious to date," Feathers replied. "But, I am just the right amount of devious to lie to your mother about who I am. What's your boss's boss's title?"
+
+"Ha! You can't be serious?" she asked. 
+
+The monotrain came into view and the commuters all stood. Feathers stood to, spinning to show that he was dressed quite well enough to impress. His two-piece showed that he'd been a member of the administrative section for at least long enough to have a a second-cadre security clearance - rare enough only half way up the hive, The white-with-blue accents of the armoured sections showed that he was expected to see combat, but not outside of diplomatic engagements. 
+
+He wasn't so good-looking as to be a real catch, but he presented as though he'd been around long enough - or accomlished enough, to be trusted with protecting and administering some low- to mid- level diplomat on behalf of the hive.
+
+She looked him up and down as the monotrain began to stop.
+
+"What's in it for you?" she said, her voice rising over the noise from the crowd and monotrain.
+
+"I need someone to pretend to be my sister next week."
+
+She slowly nodded as if relieved. "You got yourself a deal," she said, taking his arm in hers as they stepped onto the waiting monotrain.
+
+By the time they stepped off, most of the way around the other side of the hive, they had a cover story for their entire relationship. Of course, it had to involve him putting himself in harms way, but her being the one to actually save the day. One of his service badges, something that, had she been caught wearing it there would be no repercussions, made its way onto her lapel, as a sign of her 'civilian bravery commendation'. 
+
+Her mother's apartments were in a well-kempt part of the Hive, and Feathers began to realise his outfit may only just be enough to pass as acceptable here, let alone impressive. Waterfalls and gardens with high-roofed sections told them which way to go.
+
+"You haven't told me your name," Feathers said. "Might want to get that out of the way. Maybe a pet name too?"
+
+"Morgan", she said. 
+
+Feather's snorted. "Did you parents name you after the Fleet Marshall or did you choose it?"
+
+"Then call me Flowers, Feathers and Flowers. I've always been a bit of a botanist at heart. Besides, wouldn't a Secondary Adjunct have a rank, not just a job title?"
+
+Feathers had to pull this one out of an implant. "Lieutenenat," he said. "An officer, but only just."
+
+"Ohhh, good, that works nicely. Not too unrealistic that a researcher would fall in with an officer."
+
+Feathers heard the word 'researcher' like it had tapped him enough times to start a small bruise. "What exactly do you research?"
+
+The dark-haired woman with the deep oak skin common to the Hive tapped the entry button to an ornate apartment entry. "I study Medici family history," she said. "I study the Fleet Marshall's children."
+
+The door slid open to reveal a split-level space with a garden up one wall and stairs up the other. Tapestries with the unmistakable plain circle symbol of the Medici family hung above the stairs, giving the metal walls a more noble and, to him, baroque, feel, than anywhere he'd been in a long time. 
+
+The top level had a large dining table, an oblong window to the desert outside, and a woman who could have been a more stately clone of Morgan. She leaned on a railing and greeted them.
+
+"Morgan! My dear, and a guest! It is a pleasure to meet you, sir. To whom do I have the pleasure?"
+
+Feathers let his arm slip from Morgan's and bowed. "Lieutenant Feathers Brightly, Ma'am. I'm afraid that in our excitement, Flowers has only referred to you as Mum, or Dear Mother."
+
+"Flowers!" the woman chuckled, her smile full of mirth. "Such a fitting pet name, and a Second Adjunct. You can call me Don, young man."
