@@ -7,11 +7,12 @@
         "id": "d09bc9d93a0bffc6",
         "type": "leaf",
         "dimension": 75.57377049180329,
+        "active": true,
         "state": {
           "type": "markdown",
           "state": {
-            "file": "Nano Draft.md",
-            "mode": "source"
+            "file": "Reviews.md",
+            "mode": "preview"
           }
         }
       },
@@ -19,7 +20,6 @@
         "id": "2986b74a6d397902",
         "type": "leaf",
         "dimension": 24.42622950819672,
-        "active": true,
         "state": {
           "type": "markdown",
           "state": {
@@ -85,7 +85,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Random notes to think about..md"
+                "file": "Reviews.md"
               }
             }
           },
@@ -103,7 +103,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Random notes to think about..md"
+                "file": "Reviews.md"
               }
             }
           }
@@ -114,8 +114,8 @@
     "width": 300
   },
   "lastOpenFiles": [
-    "Random notes to think about..md",
+    "Untitled.md",
     "Nano Draft.md",
-    "Untitled.md"
+    "Random notes to think about..md"
   ]
 }
